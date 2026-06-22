@@ -1,1 +1,1 @@
-Current state - Page 59
+Current state - Page 70
